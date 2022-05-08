@@ -1,1 +1,1 @@
-Plan dominance of the eco web.
+High level corporation wide planning and discussion.
